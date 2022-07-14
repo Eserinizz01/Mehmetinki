@@ -1,0 +1,2 @@
+# Mehmetinki
+Açıklamaya gerek yok 
